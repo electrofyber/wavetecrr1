@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @electrofyber<br>👀 I’m interested in Tech And Music<br>🌱 I’m currently learning To Code<br>📫 How to reach me: You Can Reach Me On Discord:prezydent.pl<br>😄 Pronouns: He/Him<br>⚡ Fun fact: I am Polish but I live in Germany<br>📱 I Wont make projects that often but i will try to make some
+👋 Hi, I’m @kernelpanic-dev <br>👀 I’m interested in Tech<br>🌱 I’m currently learning To Code😄 Pronouns: He/Him<br>📱 I Wont make projects that often but i will try to make some
 
 
 ## 🌐 Socials:
