@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @kernelpanic-dev <br>👀 I’m interested in Tech<br>🌱 I’m currently learning To Code😄 Pronouns: He/Him<br>📱 I Wont make projects that often but i will try to make some
+👋 Hi, I’m @techwizardolaf <br>👀 I’m interested in Tech<br>🌱Pronouns: He/Him<br>📱 I Wont make projects that often but i will try to make some
 
 
 ## 🌐 Socials:
